@@ -46,7 +46,7 @@
 
 ![Screenshot (190)](https://user-images.githubusercontent.com/93031693/139253566-06cf7487-2520-4f74-aa87-6842e9dfa198.png)
 
-9. SELESI
+9. Selesai
 
 
 
